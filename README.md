@@ -1,2 +1,0 @@
-# ---
-Project By Ai Noobies
